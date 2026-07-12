@@ -28,3 +28,15 @@ https://www.mediafire.com/file/oa1rca3h1b5ecnc/vehicles.zip/file
 
 لومينا2009 https://modsfire.com/4D6P9SIW4F6pQDF
 
+دوج2006
+https://modsfire.com/A90qg31eVQr0z6e
+
+ريو
+
+https://modsfire.com/PC32gB5mhxeArXy
+
+كامري 23
+https://modsfire.com/u3V8BZrpeO061S2
+
+تورس2020
+https://modsfire.com/2jk89qC6z7TdNNv
