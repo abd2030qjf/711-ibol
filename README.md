@@ -31,7 +31,8 @@ https://www.mediafire.com/file/oa1rca3h1b5ecnc/vehicles.zip/file
 دوج2006
 https://modsfire.com/A90qg31eVQr0z6e
 
-ريو
+كورلا
+https://modsfire.com/aM9kfN7BuM6DZV3
 
 
 
@@ -42,7 +43,8 @@ https://modsfire.com/u3V8BZrpeO061S2
 https://modsfire.com/2jk89qC6z7TdNNv
 
 
-الانتراء
+كابرس
+https://modsfire.com/7dkZdZmbH97oz4I
 
 
 
